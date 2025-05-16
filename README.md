@@ -1,2 +1,2 @@
 # Tipping-the-Scales-Exotics
-Exotic pets and plants Curator
+Exotic pets and plants Curator. I have had a passion for reptiles and anphibian's as far back as I can recall. I have slowely turned my hobby from simply keeping to breeding quality animalls and growing stunning plants. My mission is to provide joy and wonder for generations with my animals and plants. I keep a small collection of animals and mother plants and I would love them to go into exceptional homes to be appriciated by others.
